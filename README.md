@@ -1,5 +1,7 @@
 *James Malin, Founder, Invisair Inc. & Diverse Programmers*
+
 https://www.invisair.com
+
 https://www.diverseprogrammers.com
 
 
